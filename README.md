@@ -10,9 +10,9 @@ I'm back with a new freebie, you can find 15 awesome free buttons that you can u
 If you like it, drop me a line, i'll appreciate it
 khalil.benihoud@gmail.com
 
-You can also follow me here :
+You can also follow me here : <br />
 http://www.twitter.com/benihoudkhalil
-
+<br/>
 http://www.dribbble.com/benihoudkhalil
 <br />
 http://www.benihoudkhalil.com
